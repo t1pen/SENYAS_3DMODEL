@@ -1,0 +1,1 @@
+# SENYAS_3DMODEL
